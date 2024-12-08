@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I’m Mahrukh<br>- 👀 I’m interested in CODING, AI, DOING PROJECTS..<br>- 🌱 I’m currently learning AI ...<br>- 💞️ I’m looking to collaborate on doing projects...<br>- 📫...<br>- 😄 Pronouns: SHE/HER...<br>
+Hi, I’m Mahrukh<br>- 👀 I’m interested in CODING, AI, DOING PROJECTS..<br>- 🌱 I’m currently learning AI ...<br>- 💞️ I’m looking to collaborate on doing projects...<br>- 📫mahrukhbashir03@gmail.com...<br>- 😄 Pronouns: SHE/HER...<br>
 
 
 # 💻 Tech Stack:
